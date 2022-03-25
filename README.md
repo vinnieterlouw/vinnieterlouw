@@ -48,3 +48,8 @@
 - Starting at Codelogic
 - Get a lot of experience
 - Working full time in a team
+
+### How to reach me
+
+Email: vinnie.terlouw@gmail.com
+
